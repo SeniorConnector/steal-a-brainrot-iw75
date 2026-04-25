@@ -1,4 +1,4 @@
-
+Experience steal a brainrot like never before with premium Script for steal a brainrot, the #1 Script. Includes auto-upgrade and silent aim for
 
 
 
